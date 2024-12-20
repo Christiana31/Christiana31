@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Christiana31
+- 👀 I’m interested in collaboration and internship 
+- 🌱 I’m currently learning product management 
+- 💞️ I’m looking to collaborate on product management project 
